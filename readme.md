@@ -5,6 +5,12 @@
 ## Game
 
 ## Movie
+- [電車男Deluxe最後的聖戰(上)] (https://www.youtube.com/watch?v=qotbx7rrgi0)
+- [電車男 Deluxe 最後的聖戰(下)] (https://www.youtube.com/watch?v=pX0wHDSffO8`)
+Densha Otoko (電車男, translated as Train Man) is a Japanese movie, television series, manga, novel, and other media, all based on the purportedly true story of a 23-year-old otaku who intervened when a drunk man started to harass several women on a train. The otaku ultimately begins dating one of the women.
+
+The event, and the man's subsequent dates with the woman, who became known as "Hermès" (エルメス Erumesu?), was chronicled on the Japanese mega-BBS 2channel. This led to the compilation of the relevant threads in a book, followed by several manga versions, a movie, a theatrical play later released as a DVD, and finally a TV series.
+
 
 ## Talk 
 - [张艾嘉：一场特别的演讲 开讲啦20150321] (https://www.youtube.com/watch?v=fY_T7za_nOc)
