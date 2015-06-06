@@ -4,6 +4,8 @@
 ## Game
 
 ## Movie
+
+## TV shows 
 ### [電車男Deluxe最後的聖戰(上)] (https://www.youtube.com/watch?v=qotbx7rrgi0)
 ### [電車男 Deluxe 最後的聖戰(下)] (https://www.youtube.com/watch?v=pX0wHDSffO8`) 
 
@@ -11,6 +13,12 @@ Densha Otoko (電車男, translated as Train Man) is a Japanese movie, televisio
 
 The event, and the man's subsequent dates with the woman, who became known as "Hermès" (エルメス Erumesu?), was chronicled on the Japanese mega-BBS 2channel. This led to the compilation of the relevant threads in a book, followed by several manga versions, a movie, a theatrical play later released as a DVD, and finally a TV series.
 
+
+### [在世界中心呼喚愛] (https://www.youtube.com/watch?v=9OZFnFvoYug)
+
+Katayama had intended Socrates in Love as part of a trilogy to explore the concept and themes of youth and memories. His editors however decided [1] to take advantage of the "Pure Love boom"—a Japanese media trend of novels and films that portray a chaste, undying and tragic love—by publishing the novel under Crying Out Love, In the Center of the World to appeal fans of tragic love stories. In spite of this, only 8,000 copies of the book were printed and distributed, due to the poor sales of Katayama's two previous novels.[1]
+
+A year after the novel's publication, celebrity actress Kou Shibasaki wrote in a guest column for Japanese monthly literary and pop culture magazine Da Vinci (March 2002 issue): "I read it thoroughly even though it made me cry. I wished to have a such relationship in my life." The book became a best-seller, due to Shibasaki's recommendation and the word of mouth. In May 2004 over 3 million copies were sold, surpassing the sales record of Haruki Murakami's Norwegian Wood. Shibasaki subsequently appeared in the 2004 film version.
 
 ## Talk 
 ### [张艾嘉：一场特别的演讲 开讲啦20150321] (https://www.youtube.com/watch?v=fY_T7za_nOc)
